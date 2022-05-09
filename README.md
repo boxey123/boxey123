@@ -1,5 +1,5 @@
 - 👋 Hi, I’m @boxey123
-- 👀 I’m interested in pro gaming
+- 👀 I’m interested in pro fortnite gaming
 - 🌱 I’m currently learning c++
 - 📫 How to reach me XN_boxey#8101 (On discord)
 
