@@ -1,6 +1,6 @@
 - 👋 Hi, I’m @boxey123
 - 👀 I’m interested in pro fortnite gaming
-- 🌱 I’m currently learning c++
+- 🌱 I’m currently learning your mum
 - 📫 How to reach me XN_boxey#8101 (On discord)
 
 <!---
