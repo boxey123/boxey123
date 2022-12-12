@@ -1,7 +1,7 @@
 - 👋 Hi, I’m @boxey123
 - 👀 I’m interested in pro fortnite gaming
 - 🌱 I’m currently learning your mum
-- 📫 How to reach me XN_boxey#8101 (On discord)
+- 📫 How to reach me XN_Boxey#3856 (On discord)
 
 <!---
 boxey123/boxey123 is a ✨ special ✨ repository because its `README.md` (this file) appears on your GitHub profile.
